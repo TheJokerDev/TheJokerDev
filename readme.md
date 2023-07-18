@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **java projects**
 
-- 📫 How to reach me: **dev@frozzmc.us**
+- 📫 How to reach me: **contact@j0keer.com**
 
 - ⚡ What I like to do: **I like play music, play videogames, learn new things... and coding of course**
 
